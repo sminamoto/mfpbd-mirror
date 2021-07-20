@@ -1,4 +1,4 @@
-[![Slam](https://imagetot.com/images/2021/06/28/e8155fe3d87a1084d7cda5f4ecc5211c.jpg)](https://telegram.dog/cloudsmirror)
+[![Slam](https://mfpbd.me/wp-content/uploads/2021/07/moviesfreakpro-glogo.png)](https://telegram.dog/cloudsmirror)
 
 # Deepak Clouds Mirror
 ![GitHub Repo stars](https://img.shields.io/github/stars/blackdeep04/deepak-clouds-mirror?color=blue&style=flat)
